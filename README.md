@@ -18,8 +18,7 @@ Joseph Beuys
 Léon Theremin  
 Harald Bode  
 Vladimir Bonačić  
-Bertolt  
-Brecht  
+Bertolt Brecht  
 Robert Breer  
 Bazon Brock  
 Francis Brugière  
