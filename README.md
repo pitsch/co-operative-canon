@@ -45,8 +45,7 @@ Charles Dockum
 Christoph Dreher  
 Marcel Duchamp  
 Jean Dupuy  
-Charles and Ray  
-Eames  
+Charles and Ray Eames  
 E.A.T.  
 Harold Eugene Edgerton  
 Sergei Eisenstein  
