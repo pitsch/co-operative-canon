@@ -125,8 +125,8 @@ Stephen Quay & Timothy Quay
 Raymond Queneau  
 Gunter Rambow  
 Kibong Rhee  
-Józef Robakowski. Otto  
-E. Rössler  
+Józef Robakowski   
+Otto E. Rössler  
 Ulrike Rosenbach  
 Boris Rosing  
 Dieter Roth  
